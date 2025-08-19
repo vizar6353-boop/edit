@@ -31,6 +31,7 @@
 * [Release APK](https://forum.release-apk.com/) / [Discord](https://discord.gg/RDVKXsnqce)
 * [ReXDL](https://rexdl.com/) / [Telegram](https://t.me/joinchat/AAAAAFVMhwX7IzS5hMc8OQ)
 * [Android APK CSE](https://cse.google.com/cse?cx=e0d1769ccf74236e8) / [CSE 2](https://cse.google.com/cse?cx=73948689c2c206528) / [CSE 3](https://cse.google.com/cse?cx=a805854b6a196d6a6) or [App Finder](https://play.google.com/store/apps/details?id=scadica.aq) - APK Search Engines
+* This site makes downloading and playing Stumble Guys really simple. Definitely recommend visiting <a href="https://stumble-guyzapk.com/">https://stumble-guyzapk.com</a> if you're getting started
 
 ***
 
